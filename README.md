@@ -1,6 +1,6 @@
 #### <a href="https://www.gautamkrishnar.com/"><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="5%"></a> I'am Software Engineer, and 
 - I would like to develop and learn new technologies 💻
-- I love running 🏃 and play football
+- I love walking 🏃 and play football :soccer:
 - I like to read books 📚 in my free time 
 - I like listening Hip hop music :headphones:
 <br />
