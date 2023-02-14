@@ -2,7 +2,7 @@
 - I would like to develop and learn new technologies 💻
 - I love running 🏃 and play football
 - I like to read books 📚 in my free time 
-- I like listening to the blues 🎹
+- I like listening Hip hop music :headphones:
 <br />
 
 #### 🚀 Tools that I Use:
